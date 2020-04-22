@@ -2,7 +2,7 @@
 
 Análise se a nova **Lei do financiamento de campanha política** funcionou na **segunda maior região metropolitana do país**.
 
-Essa **Lei proíbe**, a partir de **2012**, que **pessoas jurídicas (empresas) doêm** dinheiro para **financiar a campanha política** de pessoas.
+Essa **Lei proíbe**, a partir de **2012**, que **pessoas jurídicas** (empresas) doem dinheiro para **financiar a campanha política** de pessoas.
 
 Empresas doarem para políticos financiarem suas campanhas para se elegerem atrapalha o processo democrático devido ao "**jogo de interesses**".
 
